@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BobDeCuir, President of neuMedia Software.
+- 👀 I’m interested in applying the lastest software technologies to create amazing new applications.
+- 💞️ I’m looking to collaborate on crypto-currency.
+- 📫 rdecuir@neumediasoftware.com
